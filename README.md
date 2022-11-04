@@ -1,4 +1,5 @@
 - 👋 Hi, I’m Victor Manuel Giordano know as well @vituchon
+- I'm from Argentina (America) 🇦🇷
 - 🦁 I'm from Leonine  (Zodiac sign)
 - 👀 I’m interested in ...
   - Pizza 🍕
